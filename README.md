@@ -1,2 +1,2 @@
 # GONI
-I am a expert Leads Generation
+I am a expert Lead Generator
